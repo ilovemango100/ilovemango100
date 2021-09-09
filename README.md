@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ilovemango100
-- 👀 I’m interested in learning languages, art, coding,raeding, maths.
+- 👀 I’m interested in learning languages, art, coding,reading, maths.
 - 🌱 I’m currently learning School
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ... my email is likitha.alahari.166@gmail.com
